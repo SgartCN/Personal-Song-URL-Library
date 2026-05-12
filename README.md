@@ -31,4 +31,4 @@ If you stumbled upon this repo while searching for certain keywords, I'm truly s
 
 
 如果流程没问题，你已经获得了mp3直链，尽情享受音乐吧 ;)  
-**若出现问题请在评论区求助，我会尽我所能帮助您🍵**
+**若出现问题请在讨论区求助，我会尽我所能帮助您🍵**
